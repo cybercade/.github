@@ -1,1 +1,1 @@
-# cybercade
+<img width="100%" style="margin-left: auto; margin-right: auto;" alt="MainBanner" src="https://drive.cyberca.de/apps/files_sharing/publicpreview/dqQdaobdyzQpS5w?file=/&fileId=903&x=3440&y=1440&a=true&etag=67edd4331962e">
